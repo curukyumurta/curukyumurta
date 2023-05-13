@@ -1,0 +1,2 @@
+# curukyumurta
+yumurta çıksın ortaya
